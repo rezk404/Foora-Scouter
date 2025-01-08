@@ -1,1 +1,0 @@
-# Foora-Scouter
